@@ -1,2 +1,2 @@
-# Dimensions Climber-Privacy Policy
-Privacy Policy for Dimensions Climber on google play store
+# Privacy Policy of "Dimensions Climber"
+
